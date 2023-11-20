@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @utkarsh-2000
-- 👀 I’m interested in understanding physics through computers.
-- 🌱 I’m currently learning physics.
+- 👀 I’m interested in...hmm thats a tough one !
+- 🌱 I’m currently (TRYING)learning physics.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
